@@ -1,3 +1,3 @@
-- 📫 How to reach me on Discord: [LandDEV#3931](https://discord.gg/2vPq96jCzJ)
+- 📫 How to reach me on Discord: [LandDEV#2811](https://discord.gg/2vPq96jCzJ)
 - 📚 Student in Germany
 - ⚡ Interesting facts: also modders for the farming simulator, blender knowledge
